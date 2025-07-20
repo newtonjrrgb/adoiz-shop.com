@@ -1,0 +1,1 @@
+# adoiz-shop.com
